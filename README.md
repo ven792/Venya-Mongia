@@ -1,5 +1,4 @@
-
-                                                          👋 Hey there! I'm Venya Mongia
+👋 Hey there! I'm Venya Mongia
 
 🎓 Computer Science & AI Student @ University of Birmingham Dubai
 💼 Previously: Intern @ Regulas Limited | Intern @ Jalaram Medical Centre
